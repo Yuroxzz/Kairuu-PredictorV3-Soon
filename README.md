@@ -2,7 +2,7 @@
 # Yuro-Predictor BLOXFLIP
 
 # Got Leak this predictor?
-Downalod?
+Download?
 
 # Just download loader from relese and have fun <3
 What in ther?
