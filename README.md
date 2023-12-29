@@ -1,5 +1,5 @@
-# Kairuu-PredictorV3-Soon
-# Yuro-Predictor BLOXFLIP
+# BOZO-PredictorV3-Soon
+# BOZO-Predictor BLOXFLIP
 
 # Got Leak this predictor?
 Download?
